@@ -1,4 +1,4 @@
-### Boas Vindas ao Meu Perfil 🍺
+### Sejam Bem vindos ao meu Perfil 🍺
 
 Meu nome é Guilherme Meneghel 
 
